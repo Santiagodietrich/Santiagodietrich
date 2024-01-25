@@ -38,6 +38,8 @@ Estoy abierto a colaboraciones, nuevas ideas y oportunidades para crecer. ¡No d
 Conecta conmigo en:
  
 LinkedIn:(https://www.linkedin.com/in/santiago-dietrich-288413272/)
+
+
 Gmail:(santydietrich@gmail.com)
 
 ¡Gracias por visitar mi perfil! 👨‍💻  
