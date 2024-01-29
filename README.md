@@ -1,4 +1,4 @@
-                                                     ## Hola 👋, soy Santiago Dietrich  
+## Hola 👋, soy Santiago Dietrich  
   
 
 <a href="https://github.com/Santiagodietrich" target="_blank">
